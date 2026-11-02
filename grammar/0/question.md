@@ -1,6 +1,6 @@
 **P.6 English 練習卷**  
 **Grammar + Jobs Vocabulary**  
-**共 80 題（附答案）**
+**共 80 題**
 
 ---
 
